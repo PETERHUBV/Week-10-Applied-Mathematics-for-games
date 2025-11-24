@@ -1,1 +1,1 @@
-<video controls src="Week 10 Assignment Apllied for Mathematics.mp4" title="Title"></video>
+PETERHUBV/Week-10-Applied-Mathematics-for-games/Week 10 Assignment Apllied for Mathematics.mp4
