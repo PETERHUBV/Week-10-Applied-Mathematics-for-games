@@ -1,1 +1,1 @@
-[▶ Click here to watch **Week 10 Assignment Apllied for Mathematics.mp4**](https://github.com/PETERHUBV/Week-10-Applied-Mathematics-for-games/blob/main/Week%2010%20Assignment%20Apllied%20for%20Mathematics.mp4?raw=true)
+
